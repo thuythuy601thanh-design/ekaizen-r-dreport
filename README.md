@@ -1,1 +1,0 @@
-# ekaizen-r-dreport
